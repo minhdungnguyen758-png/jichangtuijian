@@ -197,7 +197,7 @@ M78星云是一家主打性价比的翻墙机场服务商，采用三网BGP入�
 - **VIP2**：￥30/月，200G流量/月。
 - **VIP3**：￥60/月，400G流量/月。
 
-**龙猫云机场官网**：[立即注册体验](https://link.airportvpn.top/) | [**龙猫云机场怎么样？**](https://www.airportvpn.top/)
+**龙猫云机场官网**：[立即注册体验](https://link.airportvpn.top/swwdat) | [**龙猫云机场怎么样？**](https://www.airportvpn.top/posts/longmao-cloud-review/)
 
 ---
 
