@@ -146,7 +146,7 @@ M78星云是一家主打性价比的翻墙机场服务商，采用三网BGP入�
 - **季付**：￥28/季，相当于￥9.3/月。
 - **年付**：￥108/年，相当于￥9/月。
 
-**紅葉机场官网**：[立即注册体验](https://link.airportvpn.top/ahec38) | [**紅葉机场怎么样？**](https://www.airportvpn.top/)
+**紅葉机场官网**：[立即注册体验](https://link.airportvpn.top/ahec38) | [**紅葉机场怎么样？**](https://www.airportvpn.top/posts/hongye-review/)
 
 ---
 
